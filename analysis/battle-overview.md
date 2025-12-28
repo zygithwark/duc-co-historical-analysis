@@ -1,0 +1,1 @@
+The Battle of Đức Cơ in August 1965 resulted in a successful defense of the Đức Cơ Special Forces camp by U.S. and ARVN forces against a regimental-sized Viet Cong assault. The engagement highlighted the effectiveness of airmobile operations and marked a significant early combat test for the U.S. 1st Cavalry Division in Vietnam.
